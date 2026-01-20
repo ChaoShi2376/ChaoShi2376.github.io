@@ -1,13 +1,11 @@
 
-- Outstanding Graduate Award (CUMT), 2025.
+- 第二十二届中国研究生数学建模竞赛华为杯，<strong>国家三等奖</strong>，排名第一（队长）
 
-- National Scholarship for Graduate Students (Ministry of Education, China), 2024.
+- 2023年全国大学生数学建模竞赛高教社杯省二等奖，排名第二
 
-- First-Prize Graduate Academic Scholarship (CUMT), 2023 & 2024.
+- 2023年06月，主持一项校级大学生创新创业计划项目《基于微弧氧化技术的钢轨扣件表面耐磨防腐高性能涂层的制备》
 
-- Outstanding Undergraduate Thesis Award (Jiangsu Provincial Dept. of Education, China), 2022.
+- 2024年06月，主持一项省级大学生创新创业计划项目《考虑打滑工况的动车组轴箱轴承疲劳失效机理研究》
 
-- First-Prize Corporate Scholarship (CUMT), 2020.
-
-- First-Prize Undergraduate Academic Scholarship (CUMT), 2019.
+- 在本科期间曾荣获特等奖学金、校一等奖学金、校三好学生、“明堂山”奖学金等荣誉
 
