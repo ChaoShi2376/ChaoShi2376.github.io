@@ -4,6 +4,9 @@
 
 一名推免到南京理工大学的在读硕士生，车辆工程专业（研一）。研究方向聚焦于车辆结构爆炸与防护，主要关注爆炸载荷作用下车辆结构的动力响应、毁伤机理及防护结构设计等问题。
 
+#### Political Identity
+<strong>中共党员</strong>
+
 #### Foreign Language Certificate
 英语四级、英语六级
 
